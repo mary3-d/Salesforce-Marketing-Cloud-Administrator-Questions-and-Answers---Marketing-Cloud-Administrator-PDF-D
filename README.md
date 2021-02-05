@@ -1,0 +1,1 @@
+# Salesforce-Marketing-Cloud-Administrator-Questions-and-Answers---Marketing-Cloud-Administrator-PDF-D
